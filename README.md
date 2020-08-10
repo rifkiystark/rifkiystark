@@ -1,3 +1,2 @@
-### Hi there 👋
 
-# Yang Punya Orang Ganteng
+# Aku Ganteng Makasih
